@@ -1,4 +1,4 @@
-# stupid
+# Stupid AI assistant lol
 
 its Jarvis from iron man but he's stupid as hell.
 
