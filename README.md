@@ -1,6 +1,7 @@
 # stupid
-ur a moron
 
-this is useless
+its Jarvis from iron man but he's stupid as hell.
 
-it kills itself 😭
+It's kind of fun to just say stuff and watch him come up with the craziest answers.
+
+but also kind of creepy...
